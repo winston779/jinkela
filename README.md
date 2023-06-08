@@ -1,6 +1,6 @@
 # 金坷垃机场官网地址
 
-最新地址：[jinkela.lol](https://jinkela.lol/)
+最新地址：[jinkela.app](https://jinkela.app/)
 
 ## 金坷垃机场简介
 
