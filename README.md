@@ -1,6 +1,6 @@
 # 金坷垃机场官网地址
 
-最新地址：[jinkela.app](https://jinkela.app/auth/register?code=efZW)
+最新地址：[jinkela.app](https://jinkela.app/auth/register?code=fxpH)
 
 ## 金坷垃机场简介
 
